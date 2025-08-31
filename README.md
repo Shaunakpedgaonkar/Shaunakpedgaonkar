@@ -14,4 +14,4 @@
 
 ## 📫 Let's Connect
 - 🔗 [LinkedIn](https://linkedin.com/in/shaunak-pedgaonkar-9567831b7)
-- 📧 your.email@example.com
+- 📧 shaunak.pedgaonkar@gmail.com
